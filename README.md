@@ -7,3 +7,5 @@
 - ### você pode entrar em contato comigo:
 
 - @wilariasilvaconceicao@gmail.com
+
+- ![](https://media1.tenor.com/m/J9mOaXMbKygAAAAC/mochi-pet.gif)
